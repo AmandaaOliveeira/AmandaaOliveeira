@@ -1,4 +1,4 @@
-## Oii, Me chamo Amanda Oliveira!
+## Oii, sou Amanda Oliveira!
 
 
 
